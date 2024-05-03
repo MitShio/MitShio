@@ -8,7 +8,10 @@ Meu nome é Isabella mas você pode me chamar de Mitsu ou Shioki!
  
  👯 Utilizo esse espaço para organização e compartilhamento dos meus projetos ...
 
+ - 😄 Pronomes: Ela/Dela
+-->
+
 ### 📫 How to reach me: ...
 mitsukoshioki@gmail.com
-- 😄 Pronomes: Ela/Dela
--->
+
+![](https://i.pinimg.com/originals/4e/f5/ea/4ef5ead9902010b4ed7e2084149cf329.gif)
